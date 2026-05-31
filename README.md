@@ -1,16 +1,22 @@
-## Hi there 👋
+<h1 align='center'> <b> 𝗪𝗘𝗟𝗖𝗢𝗠𝗘 𝗧𝗢 𝗠𝗬 𝗚𝗜𝗧𝗛𝗨𝗕 ✨🌷🐻 </b> </h1>  
 
-<!--
-**nyxfelis/nyxfelis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<h2 align='center'> <i> @𝒏𝒚𝒙𝒇𝒆𝒍𝒊𝒔 </i> </h2>
 
-Here are some ideas to get you started:
+<div align='center'> 
+  <img src='https://tenor.com/bPgaN.gif' width='500' alt='A cute guys from sign bl manhwa'> 
+</div> 
+ 
+<h2> 𝗛𝗶, 𝗜'𝗺 𝗶𝗻𝗸 😸🎀 </h2>  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p> 😊 𝗙𝗶𝗿𝘀𝘁 𝘆𝗲𝗮𝗿 𝘀𝘁𝘂𝗱𝗲𝗻𝘁 𝗼𝗳 𝗕𝗮𝗰𝗵𝗲𝗹𝗼𝗿 𝗼𝗳 𝗦𝗰𝗶𝗲𝗻𝗰𝗲 𝗶𝗻 𝗜𝗻𝗳𝗼𝗿𝗺𝗮𝘁𝗶𝗼𝗻 𝗧𝗲𝗰𝗵𝗻𝗼𝗹𝗼𝗴𝘆 from 𝗞𝗶𝗻𝗴 𝗠𝗼𝗻𝗴𝗸𝘂𝘁'𝘀 𝗨𝗻𝗶𝘃𝗲𝗿𝘀𝗶𝘁𝘆 𝗼𝗳 𝗧𝗲𝗰𝗵𝗻𝗼𝗹𝗼𝗴𝘆 𝗧𝗵𝗼𝗻𝗯𝘂𝗿𝗶 (𝗞𝗠𝗨𝗧𝗧) </p> 
+
+<h3> 𝑴𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 💖 ✎﹏﹏﹏﹏ </h3> 
+<p> - 𝘊𝘺𝘣𝘦𝘳 𝘚𝘦𝘤𝘶𝘳𝘪𝘵𝘺 </p> 
+<p> - 𝘍𝘶𝘭𝘭 𝘴𝘵𝘢𝘤𝘬 𝘋𝘦𝘷𝘦𝘭𝘰𝘱𝘮𝘦𝘯𝘵 </p>
+<p> - 𝘈𝘳𝘵𝘪𝘧𝘪𝘤𝘪𝘢𝘭 𝘐𝘯𝘵𝘦𝘭𝘭𝘪𝘨𝘦𝘯𝘤𝘦 </p> 
+<p> (𝑎𝑛𝑦𝑤𝑎𝑦𝑠 𝐼'𝑚 𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑓𝑖𝑔𝑢𝑟𝑒 𝑖𝑡 𝑜𝑢𝑡 𝑤ℎ𝑎𝑡 𝑒𝑥𝑎𝑐𝑡𝑙𝑦 𝐼 𝑤𝑎𝑛𝑛𝑎 𝑏𝑒 ... )  </p> 
+
+<p> </p>
+
+
+
